@@ -2,6 +2,7 @@
 
 
 I'm still learning hehe.
-Real cat love.
+
+Real cat lover.
 
 If you interested about linux distros check my website on bio.
