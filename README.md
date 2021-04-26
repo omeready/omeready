@@ -5,4 +5,4 @@ I'm still learning hehe.
 
 Real cat lover.
 
-If you interested about linux distros check my website on bio.
+If you are interested about linux distros check my website on bio.
