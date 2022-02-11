@@ -1,8 +1,7 @@
 ### Hi there 👋
 
 
-I'm still learning hehe.
+I'm still learning .
 
-Real cat lover.
 
 If you are interested about linux distros check my website on bio.
